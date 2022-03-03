@@ -1,1 +1,0 @@
-# abandonstudy.github.io
